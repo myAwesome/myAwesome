@@ -6,3 +6,4 @@
 - 🧑🏿‍💻 Backend dev
 - 🎼 Music composer
 - 🎾 Tennis fan
+- 📷 Wild life photographer
