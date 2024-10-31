@@ -4,6 +4,6 @@
 
 - ✈️ Digital nomad
 - 🧑🏿‍💻 Backend dev
-- 🎼 Music composer
+- 🎼 Musician
 - 🎾 Tennis fan
 - 📷 Wild life photographer/junior-biologist
