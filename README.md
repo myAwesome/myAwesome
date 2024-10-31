@@ -7,3 +7,4 @@
 - 🎼 Musician
 - 🎾 Tennis fan
 - 📷 Wild life photographer/junior-biologist
+- 🍺 Beer lover
